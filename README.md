@@ -1,4 +1,4 @@
-# FlurideunddieZirbeldrüse
+# FlurideunddieZirbeldrüse (Einfach bisschen Zeolith trinken dazu vllt)
 
 # Die Lügenwelt ist insgeheim der die Erdklugel und seit 92 weiß die Menschheit dass die Zirbeldrüse DMT produziert
 # & Wenn man in Englisch googelt 'pineal gland dmt' und 92-97 einstellt ist auch einfach zu finden dass Fluride diese stören sodass wir nichtmal merken das Flüsse in Atomkraftwerke gehen und Fusionskraftwerke hochgrad als Einäscherungsanlagen missbraucht werden können.
